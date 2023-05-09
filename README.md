@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Gabriel Martins 😁
+## Bem-vindo(a) ao perfil do Gabriel Martins 🐺
 
  <div>
    <a href="https://github.com/gabrielmartins23">
